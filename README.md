@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Siyam024
-- 👀 I’m interested in It Field
+- 👀 I’m interested in Information Technology Field
 - 🌱 I’m currently learning Artificial Intelligence And Data Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (siyam2462004@gmail.com)
